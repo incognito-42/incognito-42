@@ -15,3 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ![gif1](b306af2540f8e843b99813625f05744a.gif)
+![gif2](28971980-92d2-11ea-8a66-4d0d91c0e790.gif)
+![gif3](61590b37136421.5735ae02e1740.gif)
+![gif4](700082fda66b852d689cde9ec55c3e3b.gif)
+![gif5](a2ba069a2e2f8de5-animation-tech-gif-by-matthew-butler-find-share-on-giphy.gif)
+![gif6](math-gifs.gif)
